@@ -7,11 +7,6 @@ Motivation:​ Volkanovski is 36 years old and understands this is his last chan
 Diego Lopes' Rise
 
 
-💻Best Streams for PC/MAC  
-🔴[SiteVisit](https://tinyurl.com/GithubUFC)
-
-📲Mobile  Friendly
-🔴[SiteVisit](https://tinyurl.com/GithubUFC)
 
 Record and Momentum: Lopes (26-6) is on a five-fight winning streak, having defeated Dan Ige and Brian Ortega. A hard-hitting brawler, Lopes has climbed the featherweight ladder quickly after joining the UFC less than two years ago.
 Fighting Style: A powerful striker complemented by elite-level jiu-jitsu. But questions about his cardio persisted despite improving in his most recent fights.
